@@ -35,4 +35,8 @@ UC: https://www.unknowncheats.me/forum/fall-guys-ultimate-knockout/509302-flying
 
 Features here: https://cdn.discordapp.com/attachments/1005360142071631922/1005367065542152252/unknown.png
 
+
+Here we can also see dev wanting me to give my source to join them but i refused due to knowing them, they also exit scam projects often :skull:
+https://cdn.discordapp.com/attachments/980641692904472616/1006114131880972299/unknown.png
+
 Leaking a UD BE source soon stay tuned! Star please to help prevent people from this scam!
