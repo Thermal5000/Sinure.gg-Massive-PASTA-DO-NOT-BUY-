@@ -39,4 +39,11 @@ Features here: https://cdn.discordapp.com/attachments/1005360142071631922/100536
 Here we can also see dev wanting me to give my source to join them but i refused due to knowing them, they also exit scam projects often :skull:
 https://cdn.discordapp.com/attachments/980641692904472616/1006114131880972299/unknown.png
 
+Dodging my mate @tevy when in a agrument abt this pasta
+https://cdn.discordapp.com/attachments/1004175909718347787/1006119867042250813/IMG_5110.png
+
+He says he pulled my members (avery.cc) . Yes this was his project for a week then got booted off the dev team shortly after release for obvious reasons ^^^^
+https://cdn.discordapp.com/attachments/1004175909718347787/1006120611380199504/unknown.png
+
+
 Leaking a UD BE source soon stay tuned! Star please to help prevent people from this scam!
